@@ -68,4 +68,4 @@ All these strategies can be accessed using Combiz Services Pvt. Ltd. If one want
 
 Having known the two, copy trading versus social trading, you will be perfectly positioned in choosing what suits your investment goals and your risk appetite.
 
-More Information Visits Our Website https://copytrading.combiz.org/
+For More Information Visits Our Website https://copytrading.combiz.org/
